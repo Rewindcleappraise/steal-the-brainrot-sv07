@@ -1,4 +1,4 @@
-
+instant steal the brainrot base Script offers the most advanced steal the brainrot base Script, with no clip and invisibility. Perfect for dominating
 
 
 
